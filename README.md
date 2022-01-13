@@ -1,2 +1,5 @@
-# catlife-bitlife-cats-cheat-codes-top-cat-hacks
-CatLife BitLife Cats Cheats and Codes unlock time machine and top cats hacks
+# CatLife BitLife Cats Cheats and Codes unlock time machine and top cats hacks
+
+CatLife BitLife Cats Cheats and Codes unlock time machine and top cats hacks - Next, let's continue what we mentioned in the previous paragraph - what is the role of each statistic / attribute and how do they affect the prospect of the role? In bitlife, whether God mode is activated or not, all characters have four visible attributes - happiness, health, wisdom and appearance. However, as you know, if you enable God mode, you can edit other statistics before starting a new life. The same principle applies to cat life. In most cases, you can only see happiness, health, loveliness and love. Incidentally, the latter attribute depends on your relationship with humans and other pets, so you cannot edit this attribute even if top cat is enabled. As for the attributes you can edit before starting a new life (again, this is for top cat users), likeability is the appearance of cats in bit life, which may determine how your owner / handler treats you, or how likely you are to attract future fur parents in pet stores or shelters. Discipline determines the possibility (or possibility) of breaking things when you run around the house.
+
+<a href="https://windmod.icu/catlife-bitlife-cats/">check here</a>
